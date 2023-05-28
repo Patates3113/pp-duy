@@ -1,0 +1,1 @@
+Kanala Abone Olmayı Unutmayın Patates1313ッ
